@@ -1,3 +1,1 @@
 ﻿# erik7815.github.io
-In the next time i will delete your account
-<3
